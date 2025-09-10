@@ -1,0 +1,1 @@
+# Penalaran-Umum-checklist-Using-P-Q
